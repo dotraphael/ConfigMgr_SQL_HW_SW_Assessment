@@ -7,3 +7,5 @@ Part 2 - https://www.linkedin.com/pulse/hardware-software-assessment-configmgr-p
 
 Part 3 - https://www.linkedin.com/pulse/hardware-software-assessment-configmgr-part-3-raphael-perez/
 
+Part 4 - https://www.linkedin.com/pulse/hardware-software-assessment-configmgr-part-4-raphael-perez/
+
