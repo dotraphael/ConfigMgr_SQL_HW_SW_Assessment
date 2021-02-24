@@ -11,4 +11,4 @@ Part 4 - https://www.linkedin.com/pulse/hardware-software-assessment-configmgr-p
 
 Part 5 - https://www.linkedin.com/pulse/hardware-software-assessment-configmgr-part-5-raphael-perez/
 
-Part 6 - https://www.linkedin.com/pulse/hardware-software-assessment-configmgr-part-6-raphael-perez/
+Part 6 - https://www.linkedin.com/pulse/hardware-software-assessment-configmgr-part-6-ie-plugin-perez
